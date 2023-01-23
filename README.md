@@ -1,2 +1,1 @@
-# Geografia-
-El planeta necesita ozono para dar vida 
+El Planeta tierra necesita ozono para dar vida
